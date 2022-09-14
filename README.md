@@ -28,7 +28,7 @@
 
 （相比各位大神而言只是一个菜鸟罢了）
 
-![DaiDaiMe](https://img-community.csdnimg.cn/images/45f3dca77dd84f62acdb8ce6a261ed1f.jpg)
+![DaiDaiMe](https://s1.328888.xyz/2022/09/15/ckPEB.jpg)
 
 <br/>
 
@@ -43,7 +43,7 @@
 - 独立思考能力（指一个人干不下去了就面向GitHub编程）
 - 持之以恒的能力（指GitHub看不懂了就开始放弃）
 
-![IamSoHard](https://img-community.csdnimg.cn/images/19dcea02d65c4b8495750ad15244a6fc.jpg)
+![IamSoHard](https://s1.328888.xyz/2022/09/15/ckfwR.jpg)
 
 <br/>
 <br/>
